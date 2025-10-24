@@ -12,7 +12,7 @@
 
 - 🧑‍💻 Ready to collaborate on Data & Business Analytics Projects <br>
 
-- 🌐 Reach me through [**Mail ID**](mohithkumar20045@gmail.com)<br> 
+- 🌐 Reach me through mohithkumar20045@gmail.com <br> 
 
 - **Data speaks - I just help it make sense** </h5>
 
